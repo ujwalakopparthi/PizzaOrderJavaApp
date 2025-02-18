@@ -88,3 +88,14 @@ Feel free to fork this repository and submit pull requests with bug fixes or imp
 ---
 
 Let me know if you'd like to make further adjustments!
+
+
+ ![image](https://github.com/user-attachments/assets/0c781e00-a184-485a-b09f-98b920b82ab2)
+
+ ![image](https://github.com/user-attachments/assets/5ffcde1f-c7be-40ad-8223-1087c90a2cd7)
+
+ ![image](https://github.com/user-attachments/assets/a8c40fac-940f-4fe0-8b7d-a98d398e14a4)
+
+ ![image](https://github.com/user-attachments/assets/73704409-8125-4f44-abd5-7f5d99b36454)
+ 
+ ![image](https://github.com/user-attachments/assets/e835cb80-661d-46ac-83b5-d8153c2b2f5e)
